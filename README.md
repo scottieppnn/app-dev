@@ -13,4 +13,3 @@ Here's are some another favorite series/movies. [^1]
 | ----------- | ----------- |
 | Series | Titans |
 | Plot | Based on the DC Comics superhero teams the Teen Titans, the series depicts a group of young heroes who join forces in their fight againts evil. |
-
